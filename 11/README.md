@@ -1,1 +1,0 @@
-# Obywatel1
